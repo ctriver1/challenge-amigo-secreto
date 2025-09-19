@@ -1,1 +1,1 @@
-# challenge-amigo-screto
+# challenge-amigo-secreto
